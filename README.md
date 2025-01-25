@@ -1,5 +1,5 @@
 - 👋 @yazdostum-nettr'den herkese merhabalar,
-- 👀 Ülkesine, vatanına, milletine, elinden geldiğince, yapılabilecek katkılar için çalışmaktır bu hesabın amacının özeti. Özellikle bu alandaki faaliyetler, herhangi bir kar amacı gütmeyen, fayda üretme amaçlı çalışmalardır.
+- 👀 Ülkesine, vatanına, milletine, insanlık adına, elinden geldiğince, yapılabilecek katkılar için çalışmaktır bu hesabın amacının özeti. Özellikle bu alandaki faaliyetler, herhangi bir kar amacı gütmeyen, fayda üretme amaçlı çalışmalardır.
 - 💞️ Yukarıdaki özetlenen felsefenin ve çerçevenin içerisinde olmak kaydıyla, yapılacak katkılara açığız ...
 - 📫 Ulaşabileceğiniz sosyal medya hesaplarımız;
 
